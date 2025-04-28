@@ -5,4 +5,5 @@ Oi, me chamo Abraão Sued
 - 📫 Contate-me por abraaosued82@gmail.com
 
 Estou sempre a procura de algo novo para aprender.
+Formado em tecnico de informatica pelo IFBA.
 Sei falar ingles intermediario e espanhol basico.
